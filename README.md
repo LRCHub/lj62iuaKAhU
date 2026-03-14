@@ -1,0 +1,41 @@
+# JPB – High（feat. Aleesia）
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:00.27] High
+[00:02.27] 
+[00:00.75] Was it the voice? Was it the fire burning in me?
+[00:06.28] High
+[00:07.24] All of the noise turned into choirs of harmony
+[00:12.72] Left me with the pieces of forever that you broke
+[00:18.72] But since you let me low
+[00:30.72] 
+[00:24.78] I've been high
+[00:31.07] I've been high
+[00:36.65] Lately, I've been high
+[00:47.65] 
+[00:50.46] I've been high
+[00:56.75] I've been high
+[01:02.44] Lately, I've been high
+[01:13.44] 
+[01:07.40] I wanna know what nobody knows
+[01:10.76] I wanna go where nobody goes
+[01:14.31] I lost my way, but I found my fighter's destiny (destiny)
+[01:20.67] I don't wanna look back now (back now)
+[01:23.53] 'Cause I know that I don't need your love
+[01:27.18] I won't let you take me down (yeah)
+[01:44.68] 
+[01:30.91] 'Cause lately I've been high
+[01:38.24] I've been high
+[01:43.82] Lately, I've been high
+[01:54.82] 
+[01:57.41] I've been high
+[02:03.96] I've been high
+[02:10.96] 
+[02:10.36] High
+[02:13.75] High
+[02:16.81] High (high)
+[02:20.07] High
+[02:24.02] Lately, I've been high
+```
